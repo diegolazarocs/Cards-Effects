@@ -2,6 +2,8 @@
 Cards Effects
 
 
-https://github.com/user-attachments/assets/91ec65ac-add1-42ac-8ded-8c4ba0c53aa5
+
+https://github.com/user-attachments/assets/ec08630c-8402-4d15-ba0c-9379a702c862
+
 
 
